@@ -1,1 +1,1 @@
-# masters-of-arcane
+# Masters of Arcane
